@@ -11,25 +11,25 @@ I created this group because you’re all such an interesting bunch, and I thoug
 
 🎮🎞️🧐**Arjun**: Avid reader with a passion for photography; gaming and game analysis expert with a knack for asking thought-provoking questions (including one that surprisingly popped up in my defense!).
 
-🛸🚣🏽‍♂️🌌**Sandeep**: Enthusiast for book adventures, rafting, and travel; a master of eloquence (can't wait to read a sci-fi story written by him) and a source of great sci-fi/absurdist book recommendations.
+🛸🚣🏽‍♂️🌌**Sandeep**: Enthusiast for book adventures, rafting, and travel; extremely eloquent (can't wait to read a sci-fi story written by him) and a source of great sci-fi/absurdist book recommendations.
 
-🏰⛪🍲**Nishant**: A positive force of energy with a very interesting PhD topic and mastery of the Czech and Slovak languages.
+🏰⛪🍲**Nishant**: A positive force of energy with a very interesting PhD topic; very fluent in speaking Czech.
 
 🖥️👾📔**Jaroslav**: Extensive knowledge of literature, a vibrant and supportive personality, and a gaming expert with an engaging writing style.
 
 🎤🦋👒**Ekta**: Going through a reading revival and the creative force behind Ekta’s Gatherings; super chic, super elegant, and bridges creative individuals across borders.
 
-🔬🕵🏻🦉**MBK (Krishna)**: Endless knowledge on pretty much everything! A polyglot with extreme logic and reasoning; offers great explanations combined with witty humor. Splendid at teaching and making one reason in ways one would've never imagined.
+🔬🕵🏻🦉**MBK (Krishna)**: Endless knowledge on pretty much everything! Good at logic and reasoning; offers great explanations combined with witty humor. Splendid at teaching and making one reason in ways one would've never imagined.
 
-🎯👑📚**Paul**: Knowledgeable about books, music, arts, and darts; an articulate writer and my awesome opponent on Quiz Planet ! Let's raise a pint of Guinness to that! 🍺
+🎯👑📚**Paul**: Loves philosophy and books, music, arts, and darts; an articulate writer and my awesome opponent on Quiz Planet ! Let's raise a pint of Guinness to that! 🍺
 
-💻📡📒**Jiří**: Expertise in game design, programming, chess, psychology, and coaching. Now focusing on AI and computing; an avid reader and a motivating, energetic teacher.
+💻📡📒**Jiří**: Expert in game design, programming, chess, psychology, and coaching. Now focusing on AI and computing; an avid reader and a motivating, energetic teacher.
 
-👩🏻‍🔬📓🍵**Deepika**: Expert in science, American academia, book clubs, writing, and art; maker of the world's best masala chai. My big sister and my earliest mentor.
+👩🏻‍🔬📓🍵**Deepika**: Expert in science, American academia, book clubs, writing, and art; makes the world's best masala chai. My big sister and my earliest mentor.
 
 🧬🥼🧫**Kačka**: Passionate about science and travel; she is at the start of her exciting PhD journey! Good luck!
 
-🪄🔮📖**Eliška**: Knowledgeable about religion, philosophy, and occult sciences. A great conversationalist - no need for Netflix when there is Eliška!
+🪄🔮📖**Eliška**: Knows plenty about religion, philosophy, and occult sciences. A great conversationalist - no need for Netflix when there is Eliška!
 
 😕🫶🏼🤘🏼**Monica**: Currently obsessed with everything Papua New Guinea! I love Papua New Guinea! 
 
