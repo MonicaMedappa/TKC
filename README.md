@@ -1,4 +1,4 @@
-# Welcome, The Interesting Bunch! 👋
+# Welcome!👋
 
 I created this group because you’re all such an interesting bunch, and I thought it’d be awesome to have a space to chat. Here is a brief introduction at the memebers of TKC:
 
