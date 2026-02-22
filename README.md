@@ -1,6 +1,6 @@
 # Welcome!👋
 
-I created this group because you’re all such an interesting bunch, and I thought it’d be awesome to have a space to chat. Here is a brief introduction of the members of TKC:
+I created this group because you’re all such an interesting bunch, and I thought it’d be awesome to have a space to chat. Here is a brief introduction of the members:
 
 ### 🌟 Member Spotlights
 🚇🚅🌎**Tej**: Philatelist and railfan; loves the band Tool and has a wide range of interests along with an immense gift for languages.
