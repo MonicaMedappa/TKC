@@ -17,7 +17,7 @@ I created this group because you’re all such an interesting bunch, and I thoug
 
 🖥️👾📔**Jaroslav**: Extensive knowledge of literature, a vibrant and supportive personality, and a gaming expert with an engaging writing style.
 
-🎤🦋👒**Ekta**: Leader of a reading revival and the creative force behind Ekta’s Gatherings; super chic, super elegant, and bridges creative individuals across borders.
+🎤🦋👒**Ekta**: Going through a reading revival and the creative force behind Ekta’s Gatherings; super chic, super elegant, and bridges creative individuals across borders.
 
 🔬🕵🏻🦉**MBK (Krishna)**: Endless knowledge on pretty much everything! A polyglot with extreme logic and reasoning; offers great explanations combined with witty humor. Splendid at teaching and making one reason in ways one would've never imagined.
 
