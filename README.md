@@ -31,7 +31,7 @@ I created this group because you’re all such an interesting bunch, and I thoug
 
 🪄🔮📖**Eliška**: Knows plenty about religion, philosophy, and occult sciences. A great conversationalist - no need for Netflix when there is Eliška!
 
-😕🫶🏼🤘🏼**Monica**: Currently obsessed with everything Papua New Guinea! I love Papua New Guinea! 
+☺️🫶🏼🤘🏼**Monica**: Currently obsessed with everything Papua New Guinea! I love Papua New Guinea! 
 
 ### 🔗 Check out:
 
