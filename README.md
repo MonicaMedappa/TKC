@@ -40,4 +40,5 @@ I created this group because you’re all such an interesting bunch, and I thoug
 * [Geetha's Instagram](https://www.instagram.com/geetvincreations/)
 * [Sandeep’s Spotify](https://open.spotify.com/episode/1WH6csnEtGYHRwwKc8ZV3E?si)
 * [Deepika’s Blog: Chai Coffee Books](https://chaicoffeebooks.blogspot.com/?m=1)
+* [Tej's Blog: Tej's Thoughts and Opinions].(https://tejvohra.substack.com/)
 * [Krishna MB (MBK)’s Blog](https://krishnamb.blogspot.com/?m=1)
