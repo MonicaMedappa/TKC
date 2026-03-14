@@ -3,13 +3,13 @@
 I created this group because you’re all such an interesting bunch, and I thought it’d be awesome to have a space to chat. Here is a brief introduction of the members:
 
 ### 🌟 Member Spotlights
-🚇🚅🌎**Tej**: Philatelist and railfan; loves the band Tool and has a wide range of interests and great knowledge along with an immense gift for languages.
+🚇🚅🌎**Tej**: Philatelist and railfan; loves the band Tool and has a wide range of interests and great knowledge along with an immense gift for languages. Extremely fun to have a conversation with! 
 
 🔭🌱🎸**Arun**: Extensive knowledge of retro music, Star Wars, Stephen King, LOTR, astronomy, and gastronomy; possesses an incredible range of interests and a love for pretty plants. Arun’s astrophotography captures a world beyond words.You have to see his posts to witness the magic. He also has a very interesting cat that is as dark and mysterious as the galaxies he explores.
 
 📙🧶🧸**Geetha**: Arun's big sister and an avid reader who gives great suggestions; engages in the cutest crocheting/knitting hobby called Amigurumi. Her Amigurumi will brighten up anybody. They are super cute!
 
-🎮🎞️🧐**Arjun**: Avid reader with a passion for photography; gaming and game analysis expert with a knack for asking thought-provoking questions (including one that surprisingly popped up in my defense!).
+🎮🎞️🧐**Arjun**: Avid reader with a passion for photography; gaming and game analysis expert with a knack for asking thought-provoking questions (including one that surprisingly popped up in my defense!). He combines an analytical perspective with a gifted lens, capturing the beauty of people through beautiful photography.
 
 🛸🚣🏽‍♂️🌌**Sandeep**: Enthusiast for book adventures, rafting, and travel; extremely eloquent (can't wait to read a sci-fi novella/series/short story written by him) and a source of great sci-fi/absurdist book recommendations.He’s incredibly fit and radiates an inspiring, high-energy spirit! 
 
@@ -17,7 +17,7 @@ I created this group because you’re all such an interesting bunch, and I thoug
 
 🖥️👾📔**Jaroslav**: Extensive knowledge of literature, a vibrant and supportive personality, and a gaming expert with an engaging writing style. He enjoys building computers, his book collection is superb and his notes when reading books is meticulous and extremely inspiring. He loves a good board game on a cold wintery evening. 
 
-🎤🦋👒**Ekta**: Going through a reading revival and the creative force behind Ekta’s Gatherings; super chic, super elegant, and bridges creative individuals across borders.
+🎤🦋👒**Ekta**: Going through a reading revival and the creative force behind Ekta’s Gatherings; super chic, super elegant, and bridges creative individuals across borders. 
 
 🔬🕵🏻🦉**MBK (Krishna)**: Endless knowledge on pretty much everything! Good at logic and reasoning; offers great explanations combined with witty humor. Splendid at teaching and making one reason in ways one would've never imagined.
 
