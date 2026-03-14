@@ -21,7 +21,7 @@ I created this group because you’re all such an interesting bunch, and I thoug
 
 🔬🕵🏻🦉**MBK (Krishna)**: Endless knowledge on pretty much everything! Good at logic and reasoning; offers great explanations combined with witty humor. Splendid at teaching and making one reason in ways one would've never imagined.
 
-🎯👑📚**Paul**: Loves philosophy and books, music, arts, and darts; an articulate writer and my awesome opponent on Quiz Planet! (He keeps beating me almost always).He's a metalhead wrapped in the demeanor of a polished Englishman; he’s impeccably polite, articulate, and carries a quiet wisdom. Let's raise a pint of Guinness to that!🍺
+🎯👑📚**Paul**: Loves philosophy and books, music, arts, and darts; an articulate writer and my awesome opponent on Quiz Planet! (He keeps beating me almost always).He's a metalhead wrapped in the demeanor of a polished Englishman; he’s impeccably polite and carries a quiet wisdom. Let's raise a pint of Guinness to that!🍺
 
 💻📡📒**Jiří**: Expert in game design, programming, chess, psychology, and coaching. Now focusing on AI and computing; an avid reader and a motivating, energetic teacher.
 
