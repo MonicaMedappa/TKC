@@ -3,19 +3,19 @@
 I created this group because you’re all such an interesting bunch, and I thought it’d be awesome to have a space to chat. Here is a brief introduction of the members:
 
 ### 🌟 Member Spotlights
-🚇🚅🌎**Tej**: Philatelist and railfan; loves the band Tool and has a wide range of interests along with an immense gift for languages.
+🚇🚅🌎**Tej**: Philatelist and railfan; loves the band Tool and has a wide range of interests and great knowledge along with an immense gift for languages.
 
-🔭🌱🎸**Arun**: Extensive knowledge of retro music, Star Wars, Stephen King, LOTR, astronomy, and gastronomy; possesses an incredible range of interests and a love for pretty plants.
+🔭🌱🎸**Arun**: Extensive knowledge of retro music, Star Wars, Stephen King, LOTR, astronomy, and gastronomy; possesses an incredible range of interests and a love for pretty plants. 
 
-📙🧶🧸**Geetha**: Arun's big sister and an avid reader who gives great suggestions; engages in the cutest crocheting/knitting hobby called Amigurumi.
+📙🧶🧸**Geetha**: Arun's big sister and an avid reader who gives great suggestions; engages in the cutest crocheting/knitting hobby called Amigurumi. Her Amigurumi will brighten up anybody. They are super cute!
 
 🎮🎞️🧐**Arjun**: Avid reader with a passion for photography; gaming and game analysis expert with a knack for asking thought-provoking questions (including one that surprisingly popped up in my defense!).
 
-🛸🚣🏽‍♂️🌌**Sandeep**: Enthusiast for book adventures, rafting, and travel; extremely eloquent (can't wait to read a sci-fi story written by him) and a source of great sci-fi/absurdist book recommendations.
+🛸🚣🏽‍♂️🌌**Sandeep**: Enthusiast for book adventures, rafting, and travel; extremely eloquent (can't wait to read a sci-fi novella/series/short story written by him) and a source of great sci-fi/absurdist book recommendations. He is very fit, has a lot of upbeat energy so full of life that is very inspiring! 
 
-🏰⛪🍲**Nishant**: A positive force of energy with a very interesting PhD topic; very fluent in speaking Czech.
+🏰⛪🍲**Nishant**: A positive force of energy with a very interesting PhD topic; very fluent in speaking Czech. 
 
-🖥️👾📔**Jaroslav**: Extensive knowledge of literature, a vibrant and supportive personality, and a gaming expert with an engaging writing style.
+🖥️👾📔**Jaroslav**: Extensive knowledge of literature, a vibrant and supportive personality, and a gaming expert with an engaging writing style. He enjoys building computers, his book collection is superb and his notes when reading books is meticulous and extremely inspiring. He loves playing board games on a cold wintery evening. 
 
 🎤🦋👒**Ekta**: Going through a reading revival and the creative force behind Ekta’s Gatherings; super chic, super elegant, and bridges creative individuals across borders.
 
